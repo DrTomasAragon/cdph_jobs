@@ -1,4 +1,4 @@
-# Selected CDPH postings
+# Selected CDPH postings, January 7, 2022
 
 The California Department of Public Health (CDPH) is recruiting for four experienced, visionary executives to join one of the largest and most acclaimed state public health departments in the nation.
  
